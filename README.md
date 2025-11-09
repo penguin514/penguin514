@@ -2,7 +2,7 @@
 - 👀 I’m interested in Automation
 - 🌱 I’m currently learning copy projects from internet
 - 💞️ I’m looking to collaborate on some interesting projects
-- 📫 How to reach me qq：1715309109
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
